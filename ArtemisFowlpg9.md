@@ -16,5 +16,6 @@ The healer shook a bony finger craftily. “Wine first. Then talk.”
 
 “Butler?”
 
-The bodyguard into a pocket, and drew out a half pint of the finest Irish whiskey. Artemis took the bottle and held it teasingly beyond the shadows. He barely had time to remove his
-goggles when the clawlike hand darted from the gloom to snatch the whiskey. A mottled green hand. There was no doubt. Artemis swallowed a triumphant grin.
+The bodyguard into a pocket, and drew out a half pint of the finest Irish whiskey. Artemis took the bottle and held it teasingly beyond the shadows. He barely had time to remove his goggles when the clawlike hand darted from the gloom to snatch the whiskey. A mottled green hand. There was no doubt. Artemis swallowed a triumphant grin.
+
+-Artemis Fowl, pg 9
